@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+currently studying
+making music with floppy drives on the side 
+
+
 <!--
 **lojziczech/lojziczech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
